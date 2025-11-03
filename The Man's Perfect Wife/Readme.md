@@ -1,3 +1,3 @@
 # On Wordpress
 
-[Full](https://rxfxnovels.wordpress.com/2025/11/03/the-mans-perfect-wife/)
+[Full](https://rxfxnovels.wordpress.com/the-mans-perfect-wife/)
