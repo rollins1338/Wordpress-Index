@@ -9,3 +9,6 @@ Doppio Senso
 ---
 The Man's Perfect Wife
 - [Full Story](https://rxfxnovels.wordpress.com/the-mans-perfect-wife/)
+---
+Muddy Summer
+- [Full Story](https://rxfxnovels.wordpress.com/muddy-summer-full-ver/)
